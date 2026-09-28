@@ -1,5 +1,5 @@
 # 💫 About Me:
-🔭 I’m currently working on PT Laut Timur Ardiprima<br>👯 I’m looking to collaborate on<br>🌱 I’m currently learning
+👯 I’m looking to collaborate on<br>🌱 I’m currently learning
 
 
 ## 🌐 Socials:
